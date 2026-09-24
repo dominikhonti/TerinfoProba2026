@@ -10,7 +10,7 @@ Gál László
 
 Henye Zoltán
 
-Honti Dominik  a delfinek a víz alatt nagyon jó emberek
+Honti Dominik ( A delfinek a víz alatt nagyon jó emberek )
 
 Horváth Gergő
 
