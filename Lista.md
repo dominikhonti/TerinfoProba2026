@@ -1,4 +1,4 @@
-# Névsor
+# Szerkesztendő névsor
 
 Balogh Bence
 
@@ -54,3 +54,4 @@ Szépvölgyi Zétény
 
 Zimány Gábor
 
+Kalicz Péter Kunhegyes
